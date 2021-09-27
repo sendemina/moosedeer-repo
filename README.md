@@ -5,4 +5,8 @@ moose deer
 is small and kind
 but his antlers
 are too soft
-to protect him
+Once there was an elephant,
+
+Who tried to use the telephant—
+No! No! I mean an elephone
+Who tried to use the telephone
